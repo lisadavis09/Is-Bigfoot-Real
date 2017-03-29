@@ -1,0 +1,2 @@
+# Is-Bigfoot-Real
+No one really knows for sure if the mysterious Bigfoot is urban legend, folklore, myth, a hoax, or actual fact, but this enigmatic creature in history has gained the attention of believers and non-believers worldwide throughout the years. The search for Bigfoot is very real and involves many individuals as well as organizations that actively study Big foot, investigate sightings, and document and report on those sightings.
